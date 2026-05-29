@@ -13,7 +13,9 @@ I have also have pursued the video editing market, I'm not really sure how many 
 
 ##### My Youtube channels
 > gaming channel_ http://www.youtube.com/@LimphoGames
+
 > food channel_ http://www.youtube.com/@christine101-n5n
+
 > motivation channel_ http://www.youtube.com/@xvbandz
 
 ### My Present
